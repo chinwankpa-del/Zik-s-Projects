@@ -7,7 +7,7 @@ squash and stretch proportions, bright saturated colors.
 
 ---
 
-## The World — Pulbia
+## The World — Verdi's
 - A planet similar to Earth but **100x bigger**
 - Massive diverse biomes, vast oceans, towering forests, storm-filled skies
 - Enormous scale means epic travel and adventure across all three books
@@ -47,9 +47,9 @@ Destruction Pulb     (slightly bigger than normal — World Eater's weapon and s
 | Normal Pulb | ~3 feet |
 | Ultimate Pulb | ~4-5 feet |
 | Destruction Pulb | ~4-5 feet |
-| Pulbia | 100x size of Earth |
-| Cosmic Pulb | Half the size of Pulbia |
-| World Eater Pulb | Half the size of Pulbia |
+| Verdi's | 100x size of Earth |
+| Cosmic Pulb | Half the size of Verdi's |
+| World Eater Pulb | Half the size of Verdi's |
 
 ---
 

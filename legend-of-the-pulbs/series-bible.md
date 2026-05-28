@@ -18,6 +18,7 @@ squash and stretch proportions, bright saturated colors.
 - **Height:** ~3 feet tall
 - **No neck** — head sits directly on body
 - **No arms** — interact with everything via short range telekinesis
+- **No mouth** — communicate entirely through telepathy
 - **One circular bulb** on top of head — same round shape for every Pulb
 - Element shown through **bulb color and glow only**, never shape
 - **Round, soft, squat body**
@@ -25,16 +26,23 @@ squash and stretch proportions, bright saturated colors.
 - Every Pulb is **born with a certain element**
 - Bulb acts as an emotion indicator — brightens, dims, flickers based on feeling
 
+### How Pulbs Communicate
+- **Telepathy** — all spoken dialogue is telepathic, shown with wavy-edged speech
+  bubbles that glow softly in the speaker's element color
+- **Bulb** — shows raw emotion beneath what is being said
+- **Body language** — posture, movement, and telekinetic field gestures carry expression
+- Moments of silence have no bubble at all — just bulb and body
+
 ---
 
 ## The Cosmic Hierarchy
 
 ```
-Cosmic Pulb          (celestial, half the size of Pulbia — ancient guardian of all existence)
+Cosmic Pulb          (celestial, half the size of Verdi's — ancient guardian of all existence)
      │
 Ultimate Pulb        (slightly bigger than normal — guardian of order, has every element)
      │
-World Eater Pulb     (celestial, half the size of Pulbia — ancient destroyer of worlds)
+World Eater Pulb     (celestial, half the size of Verdi's — ancient destroyer of worlds)
      │
 Destruction Pulb     (slightly bigger than normal — World Eater's weapon and servant)
 ```
@@ -80,7 +88,7 @@ Best friends since high school.
 
 | | Cosmic Pulb | World Eater Pulb |
 |---|---|---|
-| **Size** | Half of Pulbia | Half of Pulbia |
+| **Size** | Half of Verdi's | Half of Verdi's |
 | **Bulb Color** | Pure white, blinding | Void black, absorbs light |
 | **Nature** | Ancient guardian of all existence | Ancient destroyer of worlds |
 | **Role** | Commands the Ultimate Pulb | Commands the Destruction Pulb |
@@ -109,7 +117,7 @@ By Book 3 he is essentially unstoppable — which is why the heroes need the cry
 to restore reality rather than just beating him in a straight fight.
 
 **The World Eater's Image:**
-Since the World Eater is half the size of Pulbia, when his image bleeds into reality
+Since the World Eater is half the size of Verdi's, when his image bleeds into reality
 in Book 3 his silhouette would be visible from anywhere on the planet —
 like a second sun appearing in the sky, but wrong.
 
@@ -147,6 +155,11 @@ like a second sun appearing in the sky, but wrong.
 
 ## Book 1 — Issue 1 Script
 
+*Note: All dialogue is telepathic. Speech bubbles have wavy edges and glow softly
+in the speaker's element color. Emotion is shown through bulb state and body language.*
+
+---
+
 ### Scene 1: "Late Again" — Pages 1-3
 
 **PAGE 1**
@@ -156,21 +169,21 @@ Wide shot of a busy school hallway. Pulbs of all different elements shuffle betw
 classes. Books, bags and papers float beside them in soft glowing telekinetic fields.
 Lockers line the walls.
 
-Caption: "Pulbia High. Third period."
+Caption: "Verdi's High. Third period."
 
 Panel 2
 Wave stands at his locker, his single circular bulb glowing faintly blue as his books
 float out and hover neatly beside him. Flame leans against the next locker,
 his bulb flickering impatiently.
 
-Flame: "Have you seen Volt?"
-Wave: "No. Which means he's either late or something exploded."
-Flame: "Those are the same thing with him."
+Flame (blue-tinted wavy bubble): "Have you seen Volt?"
+Wave (blue wavy bubble): "No. Which means he's either late or something exploded."
+Flame (blue-tinted wavy bubble): "Those are the same thing with him."
 
 Panel 3
 Wave's locker clicks shut. Both glance down the hallway.
 
-Wave: "He'll show up."
+Wave (blue wavy bubble): "He'll show up."
 
 ---
 
@@ -180,7 +193,7 @@ Panel 1
 Far end of the hallway — a crackling yellow blur is hauling toward them at full speed.
 Sparks trail behind him.
 
-Volt: "MOOOOVE MOOOOVE MOOOOOVE—"
+Volt (yellow wavy bubble — stretched and panicked): "MOOOOVE MOOOOVE MOOOOOVE—"
 
 Panel 2
 Pulbs dive sideways. Floating books scatter everywhere, telekinetic grips breaking
@@ -190,33 +203,33 @@ Panel 3
 Volt skids to a stop in front of Wave and Flame, his electric bulb flickering
 erratically from the sprint.
 
-Volt: "I'm here. I'm HERE. What did I miss."
-Flame: "Class hasn't started yet."
-Volt: "...Cool. I knew that."
+Volt (yellow wavy bubble): "I'm here. I'm HERE. What did I miss."
+Flame (orange wavy bubble): "Class hasn't started yet."
+Volt (yellow wavy bubble): "...Cool. I knew that."
 
 Panel 4
 Wave and Flame stare at him. Nothing floats beside Volt — no books, no bag.
 His telekinetic field is completely empty.
 
-Wave: "You have your books?"
+Wave (blue wavy bubble): "You have your books?"
 
-Volt looks beside himself. Nothing there.
+Volt looks beside himself. His telekinetic field reaches out and finds nothing.
 
-Volt: "...I'll be right back."
+Volt (yellow wavy bubble): "...I'll be right back."
 
 ---
 
 **PAGE 3**
 
 Panel 1
-Volt zips back down the hallway. A trail of sparks and floating debris left in his wake.
+Volt zips back down the hallway. A trail of sparks and floating debris in his wake.
 
-Flame: (watching him go) "Every. Single. Day."
-Wave: (smiling, shaking his head) "Every single day."
+Flame (orange wavy bubble, watching him go): "Every. Single. Day."
+Wave (blue wavy bubble, body turned away hiding amusement): "Every single day."
 
 ---
 
-### Scene 2: "Sandwich Peasant" — Pages 4-9
+### Scene 2: "Sandwich Peasant" — Pages 4-12
 
 **PAGE 4**
 
@@ -230,120 +243,123 @@ Panel 2
 Wave, Flame and Volt walk down the sidewalk together. The massive planet's sky
 stretches above them — wide and vibrant.
 
-Volt: "Sandwich Peasant?"
-Flame: "Sandwich Peasant."
-Wave: "Obviously."
+Volt (yellow wavy bubble): "Sandwich Peasant?"
+Flame (orange wavy bubble): "Sandwich Peasant."
+Wave (blue wavy bubble): "Obviously."
 
 Panel 3
 A beat. Flame's bulb flickers slightly.
 
-Flame: "How far is it?"
-Wave: "Three blocks."
-Flame: "...How far have we walked?"
-Volt: "One block."
+Flame (orange wavy bubble): "How far is it?"
+Wave (blue wavy bubble): "Three blocks."
+Flame (orange wavy bubble): "...How far have we walked?"
+Volt (yellow wavy bubble): "One block."
 
 Panel 4
-Flame says nothing. His bulb flickers again, a little more intensely.
+Flame says nothing. His bulb flickers again, more intensely.
 
 ---
 
 **PAGE 5**
 
 Panel 1
-Two blocks later. Wave and Volt walk normally. Flame is slightly behind them,
-bulb dimming, steps getting heavier.
+Two blocks later. Wave and Volt walk normally. Flame is slightly behind,
+bulb dimming, steps getting heavier and slower.
 
-Volt: (glancing back) "You good?"
-Flame: "Fine."
-Volt: "You look like you're dying."
-Flame: "I said I'm FINE."
+Volt (yellow wavy bubble, glancing back): "You good?"
+Flame (orange wavy bubble): "Fine."
+Volt (yellow wavy bubble): "You look like you're dying."
+Flame (orange wavy bubble): "I said I'm FINE."
 
 Panel 2
-Flame's stomach lets out a long, loud, dramatic growl.
-Other Pulbs on the sidewalk turn and stare.
+A deep rumbling growl erupts from Flame's midsection — visible as shaky lines
+radiating from his body. Other Pulbs on the sidewalk stop and stare.
 
 Panel 3
-Wave and Volt stare at him.
+Wave and Volt stare at him. Flame's bulb dims with embarrassment.
 
-Flame: "...Let's walk faster."
+Flame (orange wavy bubble): "...Let's walk faster."
 
 ---
 
 **PAGE 6**
 
 Panel 1
-Exterior of Sandwich Peasant. Bright, cartoony, inviting.
-Flame practically stumbles through the door first.
+Exterior of Sandwich Peasant. Bright, cartoony, inviting sign with a little peasant
+holding a sandwich. Flame practically stumbles through the door first.
 
 Panel 2
-Behind the counter stands the worker Pulb — a dull grey Pulb with heavy tired eyes
+Behind the counter stands the worker Pulb — a dull grey Pulb with heavy drooping eyes
 and a lopsided uniform hat. A small clock on the wall behind him reads 3:58.
 His shift ends at 4:00. He is so close.
 
 Panel 3
 He looks up. Sees Flame charging toward the counter like a Pulb possessed.
-
-Worker Pulb internally screams.
+His bulb dims to near darkness with dread.
 
 ---
 
 **PAGE 7**
 
 Panel 1
-Flame slams up to the counter. His bulb is practically sputtering.
-He stares at the menu board with wild desperate eyes.
+Flame slams up to the counter. His bulb sputtering wildly.
+He stares at the menu board with wide frantic eyes.
 
-Worker Pulb: "Welcome to Sandwich Peasant. What can I—"
+Worker Pulb (grey wavy bubble, flat): "Welcome to Sandwich Peasant. What can I—"
 
 Panel 2
-Flame points aggressively at the menu with his telekinetic field.
+Flame jabs his telekinetic field aggressively at the menu board.
 
-Flame: "FLAME WANT BIG SANDWICH."
+Flame (orange wavy bubble — large and jagged): "FLAME WANT BIG SANDWICH."
 
 Panel 3
 Dead silence. Wave and Volt freeze behind him.
-The worker Pulb stares. Blinks once.
+The worker Pulb stares. His bulb gives one slow tired blink.
 
 Panel 4
 The worker Pulb glances at the clock. 3:59.
 
-Worker Pulb: (internally) "One more minute. Just one more minute."
+Worker Pulb (grey wavy bubble — internal, small and dim): "One more minute.
+Just one more minute."
 
 ---
 
 **PAGE 8**
 
 Panel 1
-The worker turns back. Professionally dead inside.
+The worker turns back. Bulb flat and professional. Completely dead inside.
 
-Worker Pulb: "Sir can you be more specific—"
-Flame: "FLAME WANT MEAT. FLAME WANT BREAD. FLAME WANT IT NOW."
+Worker Pulb (grey wavy bubble): "Sir can you be more specific—"
+Flame (orange wavy bubble — even larger): "FLAME WANT MEAT. FLAME WANT BREAD.
+FLAME WANT IT NOW."
 
 Panel 2
-Wave slides up beside Flame calmly.
+Wave slides calmly up beside Flame. His bulb a steady composed blue.
 
-Wave: "He wants the Double Ember Melt. No pickles."
-Flame: "NO PICKLE."
-Wave: "I just said that."
+Wave (blue wavy bubble): "He wants the Double Ember Melt. No pickles."
+Flame (orange wavy bubble): "NO PICKLE."
+Wave (blue wavy bubble): "I just said that."
 
 Panel 3
-Volt rolls up on the other side, barely holding back laughter.
+Volt eases up on the other side. His bulb sparking with suppressed laughter.
 
-Volt: "Mega Crunch, extra sauce. And uh—" (glancing at Flame) "—maybe make his first."
+Volt (yellow wavy bubble): "Mega Crunch, extra sauce. And uh—"
+(telekinetic field gestures toward Flame)
+"—maybe make his first."
 
 Panel 4
-Worker Pulb punches the order in slowly. Deliberately.
-He looks at Flame one more time.
+Worker Pulb punches the order in. Slowly. Deliberately.
+One last look at Flame.
 
-Worker Pulb: "It'll be five minutes."
+Worker Pulb (grey wavy bubble): "It'll be five minutes."
 
 Panel 5
-Flame's eye twitches.
+Flame's whole body goes rigid. His bulb flares dangerously.
 
-Wave: (quietly to Flame) "Do NOT."
-Flame: "I wasn't going to—"
-Wave: "Flame."
-Flame: "...Fine."
+Wave (blue wavy bubble — quiet, firm): "Do NOT."
+Flame (orange wavy bubble): "I wasn't going to—"
+Wave (blue wavy bubble): "Flame."
+Flame (orange wavy bubble): "...Fine."
 
 ---
 
@@ -351,94 +367,318 @@ Flame: "...Fine."
 
 Panel 1
 The clock hits 4:00. A small chime goes off.
-The worker Pulb's shoulders drop with pure relief.
+The worker Pulb's entire body slumps with pure relief, his bulb brightening
+for the first time.
 
 Panel 2
 A second worker Pulb shuffles out from the back, fresh and unbothered, to take over.
-The tired worker slowly unties his apron. He doesn't look back.
+The tired worker slowly removes his apron. He doesn't look back. Not once.
 
 Panel 3
-Volt watches him walk away into the back.
+Volt watches him disappear into the back.
 
-Volt: "That guy looked like he needed a nap."
-Wave: "He just served Flame. He deserves a vacation."
+Volt (yellow wavy bubble): "That guy looked like he needed a nap."
+Wave (blue wavy bubble): "He just served Flame. He deserves a vacation."
 
 ---
 
 **PAGE 10**
 
 Panel 1
-The three are settled into a booth. Their food floats comfortably in their
-telekinetic fields as they eat. The restaurant is lively around them.
+The three are settled into a booth. Their food floats beside them in their
+telekinetic fields. The restaurant is warm and lively around them.
 
 Panel 2
-Volt takes an enormous bite. Flame eats with intense focus. Wave takes a slow sip of water.
+Volt prods at his food curiously. Flame tears into his with total intensity,
+his bulb finally settling into a satisfied warm glow. Wave takes a calm measured
+sip of water, his bulb rippling gently.
 
-Volt: (mouth full) "Okay real talk. What are we doing this weekend?"
-Flame: "Sleep."
-Volt: "That's it? Just sleep?"
-Flame: "Deeply."
+Volt (yellow wavy bubble): "Okay real talk. What are we doing this weekend?"
+Flame (orange wavy bubble, distracted by food): "Sleep."
+Volt (yellow wavy bubble): "That's it? Just sleep?"
+Flame (orange wavy bubble): "Deeply."
 
 Panel 3
 Wave sets his cup down thoughtfully.
 
-Wave: "There's that open field by the Drift Cliffs. We could go out there Saturday."
-Volt: "Now THAT I can work with."
-Flame: "...Fine. But I'm sleeping in first."
+Wave (blue wavy bubble): "There's that open field by the Drift Cliffs.
+We could go out there Saturday."
+Volt (yellow wavy bubble): "Now THAT I can work with."
+Flame (orange wavy bubble): "...Fine. But I'm sleeping in first."
 
 ---
 
 **PAGE 11**
 
 Panel 1
-The three laugh. A comfortable, easy moment between old friends.
-Everything feels normal.
+The three lean back in the booth, bulbs all glowing warmly.
+A comfortable, easy moment between old friends. Everything feels normal.
 
 Panel 2
-A beat of silence. Volt spinning a fry in his telekinetic field absentmindedly.
+A beat of quiet. Volt spins a fry slowly in his telekinetic field, absentminded.
 
-Volt: "You ever think about what happens after graduation?"
-Flame: "Not really."
-Wave: "Sometimes."
-Volt: "Like... what are we actually gonna do?"
+Volt (yellow wavy bubble, quieter): "You ever think about what happens after graduation?"
+Flame (orange wavy bubble): "Not really."
+Wave (blue wavy bubble): "Sometimes."
+Volt (yellow wavy bubble): "Like... what are we actually gonna do?"
 
-Nobody answers right away.
+No bubble from anyone. Just the three of them sitting with it.
 
 Panel 3
-Flame shrugs, bulb flickering casually.
+Flame's bulb flickers casually. His body gives a slow easy shrug.
 
-Flame: "Figure it out when we get there."
+Flame (orange wavy bubble): "Figure it out when we get there."
 
 Panel 4
-Wave smiles slightly. Volt nods slowly like that's good enough for now.
+Wave's bulb pulses once — soft and steady. Volt's sparks settle.
+Good enough for now.
 
 ---
 
 **PAGE 12**
 
 Panel 1
-Wide shot of the cozy restaurant scene. Normal. Warm. Peaceful.
+Wide shot of the cozy restaurant. Normal. Warm. Peaceful.
 
 Panel 2
-BOOM. The windows rattle. Drinks ripple.
-Every Pulb in the restaurant freezes.
+BOOM. The windows rattle. Every drink on every table ripples.
+Every single Pulb in the restaurant goes completely still.
 
 Panel 3
-Tight on Wave, Flame and Volt. All three staring toward the window.
-The warmth of the moment completely gone.
+Tight on Wave, Flame and Volt. All three fixed on the window.
+Every bulb has gone quiet. The warmth of the moment — gone.
 
-Volt: "...What was that?"
+Volt (yellow wavy bubble — barely there): "...What was that?"
 
 Panel 4
-Outside the window — a distant column of dark crackling energy rises into
-the sky on the horizon.
+Outside the window. On the horizon. A massive column of dark crackling
+energy claws its way up into the sky.
+
+---
+
+### Scene 3: "The Sky is Wrong" — Pages 13-15
+
+**PAGE 13**
+
+Panel 1
+The door of Sandwich Peasant swings open. Wave, Flame and Volt step onto the sidewalk.
+Other Pulbs spill out behind them, all fixed on the same point in the sky.
+
+Panel 2
+Wide shot of the street. Every Pulb has stopped completely.
+Floating bags and books hang motionless in abandoned telekinetic fields.
+Everyone looking up.
+
+Panel 3
+The sky. A massive churning dark cloud on the horizon — deep black, shot through
+with violent pulses of red energy. It crackles and rolls like a living thing.
+
+Volt (yellow wavy bubble): "...That was not there this morning."
+
+---
+
+**PAGE 14**
+
+Panel 1
+Flame's bulb flares uneasily. Wave's pulses slow and deliberate. Volt's sparks erratic.
+
+Flame (orange wavy bubble): "What IS that?"
+Wave (blue wavy bubble): "I don't know."
+
+Panel 2
+A beat of stillness. All three staring.
+
+Volt (yellow wavy bubble): "Should we be running?"
+Wave (blue wavy bubble): "Not yet."
+
+Panel 3
+FLASH. A blinding burst of rainbow light explodes from within the dark cloud.
+Every color at once — brilliant and total. Pulbs on the street stagger back,
+shielding their eyes with their telekinetic fields.
+
+Panel 4
+Tight on Wave, Flame and Volt — bulbs flickering from the sheer intensity.
+
+---
+
+**PAGE 15**
+
+Panel 1
+The rainbow light and the dark cloud pull apart from each other.
+Two forces. Separating. And then — visible.
+
+Wide shot. In the open sky above the city, clear for every Pulb on the street to see:
+two figures. One blazing with shifting rainbow color. One wrapped in black
+with red crackling at its edges.
+
+The crowd below is completely silent. Not a single telepathic bubble.
+
+Panel 2
+Close on a random bystander Pulb. Eyes wide. Bulb gone pale with shock.
+
+Panel 3
+Close on Volt. His bulb firing rapid uncontrolled sparks.
+
+Volt (yellow wavy bubble): "Okay. NOW should we be running?"
+
+Panel 4
+Wave doesn't answer. He stares upward. His bulb has slowed to a deep, steady pulse —
+something almost like recognition, though he doesn't understand it yet.
+
+Flame (orange wavy bubble): "Wave."
+Wave (blue wavy bubble — distant): "..."
+Flame (orange wavy bubble): "Wave."
+Wave (blue wavy bubble): "I see it."
+
+---
+
+### Scene 4: "Closer Look" — Pages 16-20
+
+**PAGE 16**
+
+Panel 1
+Wave takes a step forward away from the crowd. His bulb glowing with steady curious blue.
+
+Flame (orange wavy bubble): "Wave. What are you doing."
+Wave (blue wavy bubble): "I want to see it better."
+
+Panel 2
+Flame steps directly in front of him.
+
+Flame (orange wavy bubble): "See it BETTER? There are two things fighting in the SKY—"
+Wave (blue wavy bubble): "I know."
+Flame (orange wavy bubble): "—with powers we have never seen in our entire lives—"
+Wave (blue wavy bubble): "I know."
+Flame (orange wavy bubble): "—and you want to get CLOSER."
+Wave (blue wavy bubble): "Yes."
+
+Panel 3
+Flame stares at him. Bulb flaring hot.
+
+Flame (orange wavy bubble): "That is insane."
+Wave (blue wavy bubble): "Probably."
+
+Wave steps calmly around him.
+
+---
+
+**PAGE 17**
+
+Panel 1
+Volt looks at Flame. Flame looks at Volt.
+
+Volt (yellow wavy bubble): "...I mean I also kind of want to see it closer."
+Flame (orange wavy bubble): "Don't."
+Volt (yellow wavy bubble): "I'm just saying—"
+Flame (orange wavy bubble): "Volt."
+
+Panel 2
+Wave is already half a block ahead moving toward an open clearing.
+Flame's bulb sputters. His whole body slumps in reluctant defeat.
+
+Flame (orange wavy bubble): "I hate both of you."
+
+Panel 3
+All three move into the clearing. The crowd stays far behind.
+Up ahead the sky fills with clashing forces — rainbow light bursting against
+rolling black and red.
+
+Panel 4
+The three stop. Wide open. No cover. Just them and the open sky.
+
+Volt (yellow wavy bubble, hushed): "Whoa."
+Wave (blue wavy bubble, barely there): "Yeah."
+
+---
+
+**PAGE 18**
+
+Panel 1
+Above them the battle rages. The Ultimate Pulb blazes — his circular bulb cycling
+through every color at blinding speed as elemental forces fire in every direction.
+The Destruction Pulb weaves through it all, his black form dissolving into shadow
+and reforming elsewhere.
+
+Panel 2
+Then — the Destruction Pulb stops.
+
+Mid-battle. Completely still.
+
+Panel 3
+His deep black bulb with its red crackle turns downward.
+Slowly. Deliberately.
+
+He looks directly at the three of them standing alone in the open clearing below.
+
+Panel 4
+Tight on the Destruction Pulb. No expression. Cold. Calculating.
+A long pause.
+
+Then — the faintest flicker of red at the edge of his bulb. Almost like a smile.
+
+---
+
+**PAGE 19**
+
+Panel 1
+SLAM. A massive tendril of black shadow crashes into the clearing between the heroes.
+The ground cracks and splinters. They scatter.
+
+Volt (yellow wavy bubble — pure panic): "MOVE MOVE MOVE—"
+
+Panel 2
+Wave rolls left. Flame leaps right. Volt zips backward leaving a trail of sparks.
+The shadow tendril retracts back into the sky.
+
+Panel 3
+The three scramble upright. Bulbs flickering wildly. Bodies tense.
+
+Flame (orange wavy bubble): "HE JUST—"
+Wave (blue wavy bubble): "I see it—"
+Volt (yellow wavy bubble): "WHY DID HE—"
+
+Panel 4
+Above them — the Ultimate Pulb has turned toward the distraction.
+Just for a second. Just long enough.
+
+His bulb goes wide with every color flashing at once.
+
+---
+
+**PAGE 20**
+
+Panel 1
+The Destruction Pulb is already there. Silent. Instant.
+Black tendrils wrap around the Ultimate Pulb completely, locking him in place.
+The rainbow light strains and flickers.
+
+Panel 2
+The Ultimate Pulb fights — bursts of every element firing outward in all directions.
+But the grip holds. The black tightens. The rainbow begins to dim.
+
+Panel 3
+Down in the clearing the three watch in silence. Frozen.
+
+Volt (yellow wavy bubble — small, shaking): "...What do we do."
+
+No answer.
+
+Panel 4
+Wave's bulb has gone very dim. Very still.
+Eyes fixed on the Ultimate Pulb struggling above.
+
+Wave (blue wavy bubble — quiet): "We did that."
+
+Panel 5
+Silence. Flame and Volt look at him. Then back up at the sky.
+No argument. No bubble. Just the weight of it settling over all three of them.
 
 ---
 
 ## AI Art Prompt Templates
 
 **Generic Pulb:**
-"A cute 3 foot tall plant creature, no arms, no neck, round squat body,
+"A cute 3 foot tall plant creature, no arms, no neck, no mouth, round squat body,
 one circular glowing bulb on top of head, short stubby legs, [COLOR] colors,
 [GLOW EFFECT], bouncy cartoony style, thick outlines, white background"
 

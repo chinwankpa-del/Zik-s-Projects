@@ -1625,3 +1625,1592 @@ dark earthy tones, commanding presence..."
 **Sprout:**
 "...small and wiry tree pulb, lighter bark, miniature tree covered in tiny
 twitching leaves, carries bark and vine instruments, curious energetic pose..."
+
+---
+
+### Scene 5: "No Time" — Pages 31-36
+
+**PAGE 31**
+
+Panel 1
+Night in Canopy Village. The platforms are quiet.
+Wave, Flame and Volt are settling into a guest shelter —
+simple bark walls, woven vine floors. Their bulbs dim and tired.
+
+Panel 2
+Volt stares at his telekinetic field. That faint shimmer of wind
+still flickering at the edges like static he can't switch off.
+
+Volt (yellow wavy bubble — quiet): "So Thanos trains me tomorrow?"
+Wave (blue wavy bubble): "That's the plan."
+Volt (yellow wavy bubble): "And then we fight a shadow tree."
+Flame (orange wavy bubble): "Also the plan."
+
+Panel 3
+Volt watches the shimmer ripple and fade. Ripple and fade.
+
+Volt (yellow wavy bubble): "Cool. Cool cool cool."
+
+---
+
+**PAGE 32**
+
+Panel 1
+CRACK. The whole platform shudders. A deep groaning sound from far below —
+like the earth itself shifting under pressure.
+
+Panel 2
+The three bolt upright. Bulbs firing instantly.
+
+Panel 3
+Outside the shelter — Canopy Village is awake. Tree Pulbs rushing across
+the bridges above, miniature trees rigid with alarm, leaves pulled tight.
+A guard sprints past.
+
+Wave (blue wavy bubble — grabbing the guard): "What's happening?"
+
+Panel 4
+The guard's tree branches are fully stiff. Every leaf white with fear.
+
+Guard (deep green wavy bubble): "The roots. They've broken through
+the lower platforms. Three families — they're trapped."
+
+---
+
+**PAGE 33**
+
+Panel 1
+The council platform. Thanos stands at the center, branches spread wide —
+commanding and urgent. The council around him in full alert.
+
+Thanos (dark green wavy bubble): "The Shadow Tree is moving faster
+than we predicted. Its roots have reached the base of the village.
+Our people cannot get out."
+
+Panel 2
+He looks at Wave, Flame and Volt. Direct. No apology in it.
+
+Thanos (dark green wavy bubble): "There is no time to train."
+
+Panel 3
+Volt's bulb sparks hard. His body goes very still.
+
+Volt (yellow wavy bubble — small): "...What?"
+
+Panel 4
+Thanos holds his gaze.
+
+Thanos (dark green wavy bubble): "You go now.
+Or three families lose their homes by morning.
+And the roots keep spreading."
+
+---
+
+**PAGE 34**
+
+Panel 1
+Silence on the platform. Volt looks at Wave.
+Wave's bulb is steady — but there's honesty in it.
+He doesn't have a reassuring answer.
+
+Panel 2
+Flame steps forward. Bulb burning steady and sure.
+
+Flame (orange wavy bubble): "We go now."
+
+Panel 3
+Volt looks at Flame. Then at his own telekinetic field —
+that wind shimmer flickering uncertainly at the edges.
+
+Panel 4
+He takes a breath. His bulb steadies.
+
+Volt (yellow wavy bubble): "I don't know how to use it yet."
+Thanos (dark green wavy bubble — low): "You will figure it out.
+That is what chosen ones do."
+
+---
+
+**PAGE 35**
+
+Panel 1
+Wide shot descending from Canopy Village. The three climbing down
+through the dark forest floor below the platforms —
+their bulbs the only light in the deep black between the ancient trunks.
+
+Caption: "The Shadow Tree was three days walk away."
+Caption: "The roots had already cut that distance in half."
+
+Panel 2
+The ground beneath their feet has changed. Where there was soil and moss —
+now dark cracked earth. Thin black roots threading through the cracks,
+pulsing faintly red at the edges.
+
+Flame (orange wavy bubble — low): "They're everywhere."
+Wave (blue wavy bubble): "Don't touch them."
+
+Panel 3
+Volt looks down at the roots snaking beneath his stubby feet.
+His bulb sparks nervously.
+
+Volt (yellow wavy bubble): "Not planning on it."
+
+---
+
+**PAGE 36**
+
+Panel 1
+They push deeper into the forest. The roots grow thicker.
+The trees around them darker — bark grey and stripped.
+Whatever the Shadow Tree touches, it takes the life out of it.
+
+Panel 2
+Then — up ahead. Movement.
+
+Panel 3
+Three shapes drop from the branches above.
+Small. Smaller than any Pulb they've seen.
+Black like the Destruction Pulb — same coloring, same red crackling at the edges —
+but compact. Twisted. Wrong.
+
+And on top of each head — a circular bulb. Split directly down the middle.
+Two halves that glow with dim unstable red. Like something broken
+that still tries to shine.
+
+Panel 4
+The three minions land. And stare.
+
+---
+
+**PAGE 37**
+
+Panel 1
+Tight on one minion's split bulb. The two halves pulse out of sync —
+one flickering fast, one slow. Red and darker red.
+
+Panel 2
+Volt, Wave and Flame stand their ground.
+
+Flame (orange wavy bubble — to the others, not taking his eyes off the minions):
+"They look like him."
+Wave (blue wavy bubble): "Smaller."
+Volt (yellow wavy bubble): "Still creepy."
+
+Panel 3
+The minions don't speak. No telepathic bubble. No sound.
+They just tilt their split bulbs slowly toward the heroes —
+and charge.
+
+---
+
+**PAGE 38**
+
+Panel 1
+Chaos. The three minions are fast — darting low to the ground,
+splitting around the heroes from three sides at once.
+
+Panel 2
+Flame fires a burst — hits one dead on. It staggers but doesn't stop.
+The shadow absorbs most of it but not all. Flame's fire does something.
+
+Flame (orange wavy bubble): "They're not as strong as him—"
+
+Panel 3
+A minion slams into Flame from the side. He skids back hard.
+
+Flame (orange wavy bubble): "—but there's THREE of them!"
+
+Panel 4
+Wave sends a torrent of water sweeping across the ground —
+knocking two minions off their feet, buying a second of space.
+
+Wave (blue wavy bubble — sharp): "Volt — try the wind!"
+
+---
+
+**PAGE 39**
+
+Panel 1
+Volt looks at his telekinetic field. That shimmer flickering at the edges —
+unstable, untrained, completely uncontrolled.
+
+Volt (yellow wavy bubble): "I have no idea what I'm doing—"
+
+Panel 2
+A minion leaps directly at him. Split bulb pulsing wildly.
+
+Panel 3
+INSTINCT. Volt throws everything he has outward —
+electricity AND that untrained shimmer together, no technique, no control.
+Just raw panic and power.
+
+Panel 4
+A burst of crackling wind and lightning tears outward from Volt in every direction.
+Leaves explode off trees. Roots crack. All three minions are hurled backwards
+into the dark between the trunks.
+
+---
+
+**PAGE 40**
+
+Panel 1
+Silence. Smoke. Leaves drifting down slowly through the dark forest air.
+
+Panel 2
+Wave and Flame stare at Volt.
+Volt stares at his own telekinetic field — the shimmer now bright and crackling,
+like it woke up.
+
+Volt (yellow wavy bubble — barely a whisper): "...Okay."
+
+Panel 3
+Deep in the shadows between the trees — the three minions slowly pull themselves
+back upright. Battered. Split bulbs flickering erratically. But standing.
+
+Panel 4
+Tight on Wave. His bulb dims with realization.
+
+Wave (blue wavy bubble): "They're getting back up."
+Flame (orange wavy bubble — low): "Of course they are."
+
+Panel 5
+The three minions advance again. Slower this time. More cautious.
+But still coming.
+
+Caption: "The Shadow Tree was still ahead."
+Caption: "And Volt had no idea how he'd just done that."
+
+---
+
+### Scene 6: "The Shadow Tree" — Pages 41-48
+
+**PAGE 41**
+
+Panel 1
+The three minions advance. Then — from the shadows on either side —
+three more drop silently from the branches. Six total now.
+Surrounding the heroes in a loose ring.
+
+Panel 2
+Volt's bulb sparks hard.
+
+Volt (yellow wavy bubble): "There are MORE of them—"
+Flame (orange wavy bubble): "I SEE THAT—"
+
+Panel 3
+Two minions launch directly at Wave. He blasts water — they split around it,
+too small, too fast, the stream passing harmlessly between them.
+They hit him from both sides at once.
+
+Wave (blue wavy bubble — strained): "They're too small to hit—!"
+
+---
+
+**PAGE 42**
+
+Panel 1
+Two more pile onto Flame. He fires — they dodge under it, over it,
+weaving through every burst like it's nothing. One latches onto his back.
+His bulb flares with fury and frustration.
+
+Flame (orange wavy bubble — through gritted telepathy): "GET — OFF—"
+
+Panel 2
+Wave is pinned under two minions, their split bulbs pulsing erratically
+against him. He pushes back with his telekinetic field but they keep squirming,
+too quick to hold.
+
+Panel 3
+Volt fires a bolt of electricity — it zips past a minion by inches.
+Another darts at his feet. He stumbles back.
+
+Volt (yellow wavy bubble): "They won't STAY STILL—"
+
+---
+
+**PAGE 43**
+
+Panel 1
+Wide shot. Wave on the ground, two minions pressing down on him.
+Flame spinning, trying to shake one off his back while two more circle him.
+The sixth closing in on Volt.
+
+Panel 2
+Volt looks at his friends. Really looks at them.
+Wave's bulb is going dim fast. Flame's burning but faltering.
+
+Panel 3
+Something shifts in Volt's chest. Not panic this time.
+Something deeper. Quieter. And then — impossibly warm.
+
+His bulb stops sparking.
+
+Goes completely still.
+
+---
+
+**PAGE 44**
+
+Panel 1
+The shimmer at the edges of his telekinetic field spreads.
+Slowly at first. Then faster. Wind curling outward from him
+in a slow tight spiral — leaves on the ground beginning to rise.
+
+Panel 2
+The minion advancing on Volt stops. Its split bulb flickering —
+sensing something wrong.
+
+Panel 3
+The spiral tightens. The wind rises. Volt's bulb begins to glow —
+not just yellow. Yellow and white and something new —
+a pale clean blue-white at the very center. The color of open sky.
+
+Panel 4
+Tight on Volt's eyes. Calm. Completely calm.
+Like the eye of a storm.
+
+---
+
+**PAGE 45**
+
+Panel 1
+BOOM.
+
+A massive spiraling burst of wind and electricity erupts outward from Volt
+in every direction. Not a blind panic blast this time — a single focused pulse.
+Clean. Total. Overwhelming.
+
+Panel 2
+All six minions launch off Wave and Flame simultaneously —
+hurled hard into the trees, into the roots, into the dark.
+Their split bulbs flickering out as they vanish into the shadows.
+
+Panel 3
+The wind dies. Leaves float down through the still forest air.
+
+Complete silence.
+
+---
+
+**PAGE 46**
+
+Panel 1
+Wave sits up slowly from the ground. Bark dust and leaves on him.
+His bulb dim and blinking. He stares at Volt.
+
+Panel 2
+Flame peels himself off a tree trunk he got pressed against.
+His bulb barely flickering. Also staring at Volt.
+
+Panel 3
+Volt stands in the center of a perfect circle of flattened grass and scattered roots.
+His bulb settling back to its usual yellow. The pale blue-white fading slowly.
+
+He looks at his telekinetic field.
+Then at Wave and Flame.
+
+Volt (yellow wavy bubble — genuine): "I don't know how I did that."
+
+---
+
+**PAGE 47**
+
+Panel 1
+The three walk. Deeper into the dark forest. The roots beneath their feet
+growing thicker. The shadow trail pulling them forward.
+
+Wave (blue wavy bubble): "Walk me through it."
+Volt (yellow wavy bubble): "I just — it happened."
+Wave (blue wavy bubble): "Something triggered it.
+What were you feeling right before?"
+
+Panel 2
+Volt thinks. His bulb flickers.
+
+Volt (yellow wavy bubble): "I don't know. Calm?"
+Flame (orange wavy bubble — dryly): "You were CALM while we were getting
+sat on by shadow gremlins."
+Volt (yellow wavy bubble): "I mean — not calm calm. Just... still."
+
+Panel 3
+Wave's bulb pulses slowly. Processing.
+
+Wave (blue wavy bubble): "Still."
+Volt (yellow wavy bubble): "Like everything went quiet for a second.
+And then it just — came out."
+
+---
+
+**PAGE 48**
+
+Panel 1
+Flame stomps alongside them. His bulb turning it over.
+
+Flame (orange wavy bubble): "So you can't do it on purpose."
+Volt (yellow wavy bubble): "I don't think so. Not yet."
+Flame (orange wavy bubble): "Can you try?"
+
+Panel 2
+Volt holds out his telekinetic field. Squints. Concentrates hard.
+The shimmer flickers. Stutters. Spits out one tiny gust of wind
+that rustles a single leaf.
+
+Then nothing.
+
+Panel 3
+Flame stares at the leaf.
+
+Flame (orange wavy bubble): "So that's a no."
+Volt (yellow wavy bubble): "That's a no."
+
+Panel 4
+Wave keeps walking. His bulb thoughtful.
+
+Wave (blue wavy bubble): "It'll come back.
+It came when you needed it."
+Volt (yellow wavy bubble): "What if I need it and it doesn't?"
+
+Panel 5
+Wave glances back at him.
+
+Wave (blue wavy bubble): "Then Flame and I will be there."
+Flame (orange wavy bubble — immediately): "Obviously."
+
+Panel 6
+Volt's bulb sparks warm. He keeps walking.
+
+Volt (yellow wavy bubble — quiet): "...Okay."
+
+Caption: "The Shadow Tree was close now."
+Caption: "They could feel it before they could see it."
+
+---
+
+### Scene 7: "The Battle" — Pages 49-74
+
+**PAGE 49**
+
+Panel 1
+They smell it before they see it. The air changes — heavy, cold, wrong.
+The roots beneath their feet have become a dense tangled mass,
+black and thick, veining out in every direction from a single point ahead.
+
+Panel 2
+Wave holds out his telekinetic field — stop. All three freeze.
+
+Panel 3
+Through the trees ahead — darkness that doesn't move the way darkness should.
+Shapes within it. Patrolling.
+
+Wave (blue wavy bubble — barely there): "Down. Slow."
+
+---
+
+**PAGE 50**
+
+Panel 1
+The three press low behind an enormous exposed root — wide enough to hide all three.
+They peer over the top.
+
+Panel 2
+Wide reveal. The Shadow Tree.
+
+An enormous black tree at the center of a clearing completely stripped of life.
+No grass. No color. The ground around it cracked and dark, roots spreading outward
+like veins. Its trunk is massive — wider than any tree in Canopy Village.
+Its branches reach upward and outward, bare and twisted,
+dripping with slow tendrils of shadow.
+
+Panel 3
+And patrolling the clearing — minions. Not three. Not six.
+
+Volt counts silently. His bulb barely a flicker.
+
+Volt (yellow wavy bubble — mouthed, no sound): "...Twelve."
+
+---
+
+**PAGE 51**
+
+Panel 1
+The minions move in slow overlapping loops around the tree —
+their split bulbs pulsing dim red in the dark. Methodical. Coordinated.
+Like they're connected to something.
+
+Panel 2
+Flame's bulb dims to almost nothing. Even he isn't saying anything brave right now.
+
+Panel 3
+Wave studies the patrol patterns. His bulb a slow steady pulse —
+reading the timing, the gaps, the spacing between each minion.
+
+Wave (blue wavy bubble — barely whispered): "They loop every thirty seconds.
+There's a gap on the east side — maybe five seconds."
+Flame (orange wavy bubble — just as quiet): "Five seconds."
+Wave (blue wavy bubble): "Five seconds."
+
+---
+
+**PAGE 52**
+
+Panel 1
+Then Volt goes very still. His eyes fixed on something.
+
+Volt (yellow wavy bubble — slow): "...What is that."
+
+Panel 2
+Their eyes follow his gaze. To the trunk of the Shadow Tree.
+
+Panel 3
+There — embedded partway into the bark on the side of the trunk —
+a bulb. Large. Bigger than any normal Pulb's bulb.
+Perfectly circular. But wrong.
+
+It pulses with a dim murky light — not fully black,
+not fully any color. Like something being slowly swallowed by the dark.
+
+Panel 4
+And the bark of the tree is growing over it. Slowly. Barely visible
+unless you're looking — but it's there. Black bark creeping across
+the edge of the bulb. Inch by inch. Absorbing it.
+
+---
+
+**PAGE 53**
+
+Panel 1
+Tight on the bulb half swallowed by the tree. That dim pulse.
+Faint. Struggling.
+
+Panel 2
+Wave's bulb goes very dim.
+
+Wave (blue wavy bubble — barely a breath): "It's feeding on it."
+
+Panel 3
+Flame (orange wavy bubble — low): "What IS that thing?"
+Wave (blue wavy bubble): "A weapon. Whatever it touches —
+it infects. That's where the tree gets its strength.
+That's why the roots keep spreading."
+
+Panel 4
+Volt stares at it.
+
+Volt (yellow wavy bubble): "So if we destroy the tree—"
+Wave (blue wavy bubble): "We stop the infection. The roots go dead."
+
+---
+
+**PAGE 54**
+
+Panel 1
+The three crouch behind the root in silence.
+Twelve minions circling. The Shadow Tree breathing slow and dark at the center.
+The infection bulb pulsing its dim sickly light.
+
+Panel 2
+Flame's bulb steadies. Low but sure.
+
+Flame (orange wavy bubble): "Plan."
+Wave (blue wavy bubble): "Volt hits the tree.
+One shot — everything he has. Right at the trunk."
+
+Panel 3
+Flame (orange wavy bubble): "And the twelve minions?"
+Wave (blue wavy bubble): "You and I hold them off
+long enough for Volt to get into position."
+
+Panel 4
+Flame looks at the patrol. Counts the gaps.
+His bulb flickers once — then locks in solid orange.
+
+Flame (orange wavy bubble): "I can work with five seconds."
+
+---
+
+**PAGE 55**
+
+Panel 1
+Wave turns to Volt last.
+His bulb pulses once — steady and trusting.
+
+Wave (blue wavy bubble): "You don't need to know how you do it.
+You just need to let it happen."
+
+Panel 2
+Volt looks at the tree. At the infection bulb
+pulsing its dim light at the base of all that darkness.
+
+He thinks about the three families trapped in Canopy Village.
+He thinks about what Thanos said.
+
+Panel 3
+His bulb sparks — yellow, then that pale blue-white at the center.
+Just for a moment. Then back to yellow.
+
+Volt (yellow wavy bubble — steady): "Okay."
+
+Panel 4
+Wide shot. The three crouched behind the root.
+The clearing ahead. Twelve minions. The Shadow Tree.
+The infection bulb slowly being consumed.
+
+Wave (blue wavy bubble): "On my signal."
+
+Panel 5
+Tight on all three bulbs side by side.
+Blue. Orange. Yellow. Steady.
+
+Caption: "Three against twelve against a tree that ate the dark."
+Caption: "They'd had worse odds."
+Caption: "Actually — they hadn't."
+
+---
+
+**PAGE 56**
+
+Panel 1
+Wave raises his telekinetic field — the signal.
+
+Panel 2
+Flame is already gone.
+
+---
+
+**PAGE 57**
+
+Panel 1
+Flame explodes into the clearing like a comet — bulb blazing full orange,
+a massive burst of fire leading the way. No hesitation. No buildup.
+Just Flame being exactly who he is.
+
+Panel 2
+Two minions directly in his path never see it coming.
+The fire catches them both dead center — they fly backwards,
+split bulbs sputtering and dark, crashing hard into the black roots.
+
+Panel 3
+Flame lands in the clearing. Standing tall. Bulb roaring.
+
+The other ten minions freeze. Every split bulb turning toward him.
+
+Panel 4
+Flame's telekinetic field crackles with heat.
+
+Flame (orange wavy bubble): "Come on then."
+
+---
+
+**PAGE 58**
+
+Panel 1
+Wave and Volt drop into the clearing from either side — flanking.
+
+Wave (blue wavy bubble — sharp, moving): "Ten left. Stay spread!"
+
+Panel 2
+Two minions peel off toward Wave. Two toward Volt.
+The remaining six lock onto Flame — the biggest threat, the loudest bulb.
+
+Panel 3
+Flame sees the six coming. His bulb doesn't even flicker with doubt.
+
+Flame (orange wavy bubble): "SIX? That's it?"
+
+---
+
+**PAGE 59**
+
+Panel 1
+Then all twelve — the two Volt was handling, the two on Wave,
+the six on Flame, and the two Flame already downed pulling themselves
+back upright — turn at the exact same moment.
+
+Panel 2
+Every split bulb pulses together. One synchronized red flash.
+
+Panel 3
+Tight on Wave. His bulb dims with instant dread.
+
+Wave (blue wavy bubble): "They're coordinating—"
+
+Panel 4
+ALL TWELVE CHARGE AT ONCE.
+
+Wide shot — a wave of small black bodies surging across the clearing
+from every direction simultaneously, split bulbs blazing red.
+
+---
+
+**PAGE 60**
+
+Panel 1
+Pure chaos. Wave sends a sweeping wall of water across the ground —
+knocks four off their feet but the other eight crash through the spray.
+
+Panel 2
+Flame detonates a wide fire burst — scatters three more —
+but two get inside his range and drive into him hard.
+He skids back across the cracked earth.
+
+Flame (orange wavy bubble — strained): "There's too many—!"
+
+Panel 3
+Volt is spinning — zapping left, zapping right, sparks flying everywhere.
+He hits one. Misses two. Gets clipped from behind and stumbles.
+
+---
+
+**PAGE 61**
+
+Panel 1
+Wave catches himself against a root. Two minions pressing down on him —
+their split bulbs flickering right in his face, red and wrong.
+
+Wave (blue wavy bubble — tight): "Volt—!"
+
+Panel 2
+Flame is back up — fire blazing — but three minions circle him perfectly,
+staying just outside his burst radius. Learning. Adapting.
+
+Flame (orange wavy bubble — furious): "They're getting smarter—!"
+
+Panel 3
+Volt stands in the center of the clearing.
+Six minions closing in on him from all sides.
+Wave pinned. Flame circled.
+
+The Shadow Tree looming behind it all, its infection bulb pulsing slow and dark.
+
+---
+
+**PAGE 62**
+
+Panel 1
+Volt goes still.
+
+Panel 2
+Not frozen. Not afraid. Still.
+
+The same stillness as before — that quiet place inside where everything
+stops being loud. He finds it faster this time.
+Like a door he now knows how to open.
+
+Panel 3
+The shimmer rises around him. Slow and certain.
+Wind curling outward in a tight spiral. Leaves and dust lifting off the ground.
+
+Panel 4
+The six minions closing in slow their charge.
+Split bulbs flickering — uncertain.
+
+---
+
+**PAGE 63**
+
+Panel 1
+Wave feels the wind from where he's pinned.
+His bulb pulses with recognition.
+
+Wave (blue wavy bubble — to himself): "Do it."
+
+Panel 2
+Flame feels it too. Through the three minions circling him,
+he sees Volt at the center of that rising spiral.
+His bulb burns fierce and proud.
+
+Flame (orange wavy bubble — to himself): "VOLT."
+
+Panel 3
+Full page width panel —
+Volt's bulb blazes pale blue-white.
+The spiral erupts — wind and electricity braided together,
+tearing across the clearing in every direction.
+Every minion in the clearing launched simultaneously.
+Wave and Flame bracing against the force as twelve shadows scatter
+and crash into trees, roots and darkness beyond the clearing.
+
+---
+
+**PAGE 64**
+
+Panel 1
+Silence. Wind fading. Leaves drifting down.
+
+The clearing is still. All twelve minions down — scattered at the tree line,
+split bulbs dark and flickering weakly. None getting back up this time.
+
+Panel 2
+Wave picks himself up. His bulb rippling steadily.
+
+Panel 3
+Flame straightens up with pure dignity.
+His bulb a satisfied warm ember.
+
+Flame (orange wavy bubble): "I had mine handled."
+Wave (blue wavy bubble): "You absolutely did not."
+Flame (orange wavy bubble): "I had MOST of mine handled."
+
+Panel 4
+Volt looks toward the Shadow Tree. Its infection bulb pulsing slow and dark.
+The bark still creeping. Still spreading.
+
+Volt (yellow wavy bubble — quiet): "It's still going."
+
+---
+
+**PAGE 65**
+
+Panel 1
+The three stand together facing the Shadow Tree.
+Twelve minions down. One tree left.
+
+Panel 2
+Wave's bulb is steady.
+
+Wave (blue wavy bubble): "Hit the trunk.
+Right at the infection bulb.
+That's where it's weakest."
+
+Panel 3
+Volt looks at the tree. Then at his telekinetic field —
+still shimmering from the burst.
+
+Volt (yellow wavy bubble): "I've only got one more of those in me."
+Flame (orange wavy bubble): "One is all you need."
+
+Panel 4
+Tight on the infection bulb. Pulsing. Spreading.
+
+Panel 5
+Tight on Volt's bulb. Pale blue-white burning steady at its core.
+
+Caption: "One shot."
+
+---
+
+**PAGE 66**
+
+Panel 1
+Volt plants himself in front of the Shadow Tree.
+Feet apart. Steady. His bulb burning pale blue-white at the core.
+
+Panel 2
+He reaches inward. Finds that stillness.
+Deeper this time. Further down than before.
+The shimmer rises around him — slow, tight, building.
+
+Panel 3
+Wave and Flame take position on either side — facing the tree,
+putting themselves between it and Volt.
+
+Wave (blue wavy bubble — low): "Take all the time you need."
+Flame (orange wavy bubble): "We've got you."
+
+---
+
+**PAGE 67**
+
+Panel 1
+The Shadow Tree responds.
+
+Deep within the trunk — something shifts. The bark splits apart slowly
+along a jagged line running up the center, revealing pure black beneath.
+The infection bulb pulses hard. Once. Twice.
+
+Panel 2
+The darkness inside the split begins to compress — pulling inward,
+drawing shadow from every root, every branch, every corrupted inch of bark.
+Concentrating. Thickening.
+
+Panel 3
+Wave's bulb flares with alarm.
+
+Wave (blue wavy bubble — sharp): "It's charging—!"
+
+---
+
+**PAGE 68**
+
+Panel 1
+Flame doesn't wait. He launches himself at the tree —
+fire erupting from his telekinetic field in every direction.
+
+Panel 2
+The blasts hit the trunk. The tree shudders — branches cracking,
+roots buckling. But the darkness inside keeps compressing.
+
+Flame (orange wavy bubble — hammering it): "WAVE — HIT IT—!"
+
+Panel 3
+Wave sends everything — a massive sustained torrent of water
+slamming into the trunk from the other side. The tree groans.
+Roots tear loose from the earth.
+
+But the darkness at its core does not stop.
+
+---
+
+**PAGE 69**
+
+Panel 1
+The split in the trunk widens. The compressed darkness glows —
+deep seething red-black. The infection bulb at its most malevolent.
+
+Panel 2
+Wide shot. Volt at the far end, spiral rising —
+eyes closed, going deeper, pulling everything he has left.
+Wave and Flame at the tree — giving everything they have.
+
+Panel 3
+The tree locks onto them.
+
+---
+
+**PAGE 70**
+
+Panel 1
+BLAST. A concentrated beam of pure shadow and infection tears
+from the split trunk — sweeping across the clearing.
+
+Panel 2
+It catches Wave first — full force. He's launched off his feet,
+his water burst scattering, his bulb sputtering as he hits the ground hard.
+
+Wave (blue wavy bubble — fading): "V — Volt—"
+
+Panel 3
+It swings and catches Flame. He takes it head on — bulb flaring one last
+defiant burst of orange before the impact drives him backwards
+and he crashes into the root line.
+
+Flame's bulb goes dim. His body still.
+
+Panel 4
+Tight on Volt. Eyes still closed. Spiral still rising.
+He heard them hit. He felt it.
+
+His bulb burns brighter.
+
+---
+
+**PAGE 71**
+
+Panel 1
+The Shadow Tree turns toward Volt.
+The darkness at its core recharging — slower now, but building again.
+Branches swinging to aim directly at him.
+
+Panel 2
+The infection bulb pulses — three fast beats.
+The beam begins to form at the split in the trunk.
+
+Panel 3
+Wide shot. Volt alone in the clearing.
+Wave down to his left. Flame down to his right.
+The Shadow Tree aimed directly at him.
+The beam almost ready.
+
+Panel 4
+Volt opens his eyes.
+
+---
+
+**PAGE 72**
+
+Panel 1
+His bulb is not pale blue-white anymore.
+
+It is white. Pure blinding white —
+electricity and wind so completely fused they've become something new.
+Light radiates off him in waves. The ground beneath his feet cracks outward.
+Every remaining leaf in the clearing tears free and spirals upward.
+
+Panel 2
+The Shadow Tree fires.
+
+Panel 3
+Volt fires back.
+
+Full page spread —
+Two forces colliding head on in the center of the clearing.
+The Shadow Tree's beam of black and red infection
+meeting Volt's column of white storm-light.
+The collision point erupting outward in rings of force —
+roots tearing from the earth, bark exploding off the trunk,
+darkness shredding apart wherever the white light touches it.
+
+---
+
+**PAGE 73**
+
+Panel 1
+The white wins.
+
+Volt's blast tears through the shadow beam and keeps going —
+hitting the trunk dead center, splitting through the infection bulb,
+tearing up through every branch, every root, every dark inch of the tree.
+
+Panel 2
+The darkness vanishes. Not slowly — all at once.
+Like a light switched on in a pitch black room.
+The black bark dissolves. The twisted branches crumble to nothing.
+The roots retract into the earth and go still and grey and dead.
+
+Panel 3
+The infection bulb drops from the hollow trunk.
+Hits the ground. Its sickly pulse beats once. Twice.
+Then fades. The glow gone. Just an empty dark shell
+cracking apart on the cracked earth.
+
+Panel 4
+The tree — what's left of it — stands hollow and stripped.
+No darkness. No roots spreading. No pulse.
+Just dead wood in a quiet clearing.
+
+---
+
+**PAGE 74**
+
+Panel 1
+Volt's bulb dims. That blazing white fading back to yellow.
+Then pale yellow. Then barely anything at all.
+
+His legs give out.
+
+Panel 2
+Two telekinetic fields catch him before he hits the ground.
+
+Panel 3
+Wave — battered, dim bulb, one side dark with impact bruising —
+holding Volt up on the left.
+
+Flame — singed, his ember barely lit, standing on sheer stubbornness —
+holding Volt up on the right.
+
+Panel 4
+Volt looks at both of them. His bulb gives one tiny weak spark.
+
+Volt (yellow wavy bubble — barely there): "You two look terrible."
+Flame (orange wavy bubble — ragged): "You should see you."
+
+Panel 5
+Wide shot. The three of them holding each other up
+in the center of a dead clearing under the open sky of Verdi's.
+The hollow tree behind them. The infection bulb dust at their feet.
+The roots still and silent for the first time.
+
+Wave (blue wavy bubble — quiet): "It's done."
+
+Caption: "It was done."
+
+---
+
+### Scene 8: "After" — Pages 75-85
+
+**PAGE 75**
+
+Panel 1
+Volt's eyes close.
+
+Panel 2
+The clearing. The hollow tree. Wave and Flame holding him up.
+Everything goes dark at the edges — tunneling inward.
+
+Panel 3
+Full black.
+
+One tiny yellow spark in the center.
+
+Then that too — gone.
+
+---
+
+**PAGE 76**
+
+Panel 1
+Black.
+
+Panel 2
+Blurry. Shapes without edges. Movement. Light that won't quite focus.
+
+Panel 3
+Two figures close — one blue, one orange.
+Their bulbs bright and anxious, pulsing fast.
+Leaning over him. Saying something he can't hear.
+
+Panel 4
+A third figure behind them. Taller. Wider.
+A gnarled tree silhouette against blurry sky.
+Two enormous eyes — wide open. Staring down.
+
+Panel 5
+Full black again.
+
+---
+
+**PAGE 77**
+
+Panel 1
+GASP. Volt's eyes snap open.
+
+Panel 2
+He bolts upright — bulb firing sparks in every direction,
+telekinetic field flailing outward in pure startled reflex.
+
+Panel 3
+Wave jumps back. Flame doesn't move — he saw it coming.
+Thanos, looming behind them both, doesn't even blink.
+
+Volt (yellow wavy bubble — rapid fire):
+"Is the village safe — are the roots gone —
+did the tree go out — are you two okay —
+how long was I out — is everyone—"
+
+Panel 4
+Wave puts his telekinetic field gently in front of Volt's face.
+
+Wave (blue wavy bubble — calm): "Volt."
+Volt (yellow wavy bubble): "—safe, are the citizens—"
+Wave (blue wavy bubble): "Volt."
+Volt (yellow wavy bubble — stopping): "...What."
+Wave (blue wavy bubble): "Breathe."
+
+---
+
+**PAGE 78**
+
+Panel 1
+Volt breathes. His bulb settles from frantic sparks to a slow uncertain flicker.
+
+Volt (yellow wavy bubble — smaller): "Is everyone okay?"
+Flame (orange wavy bubble — steady): "Everyone is okay."
+Volt (yellow wavy bubble): "The village?"
+Wave (blue wavy bubble): "Safe."
+Volt (yellow wavy bubble): "The tree—"
+
+Panel 2
+Thanos steps forward. His ancient branches spread slow and wide.
+Something in his eyes — softer. Just slightly.
+
+Thanos (dark green wavy bubble): "The tree is handled.
+You handled it."
+
+Panel 3
+Volt stares at him. His bulb gives one small warm spark.
+
+Then he tries to stand up and his legs immediately give out again.
+
+---
+
+**PAGE 79**
+
+Panel 1
+Thanos turns to the doorway without missing a beat.
+
+Thanos (dark green wavy bubble): "Bring him up."
+
+Panel 2
+Four Tree Pulb citizens file in — with their combined telekinetic fields
+they lift Volt gently and steadily.
+
+Panel 3
+Volt looks down at all four of them carrying him.
+
+Volt (yellow wavy bubble — awkward): "I can... this is fine.
+This is fine. I'm fine with this."
+Flame (orange wavy bubble — walking alongside): "You look very dignified."
+Volt (yellow wavy bubble): "Thank you."
+Flame (orange wavy bubble): "I was being sarcastic."
+Volt (yellow wavy bubble): "I know."
+
+---
+
+**PAGE 80**
+
+Panel 1
+Sprout's lab. Already waiting — her little tree leaves trembling
+with barely contained scientific excitement.
+
+Sprout (light green wavy bubble): "All three of you. Wonderful.
+I have so many readings to take."
+
+Panel 2
+Flame's bulb dims slightly.
+
+Flame (orange wavy bubble): "Are we getting healed or studied?"
+Sprout (light green wavy bubble): "Both. Sit."
+
+Panel 3
+A series of small panels —
+Vine wraps on Wave's impact bruising, his bulb slowly brightening.
+Something warm applied to Flame's singed side, his ember rebuilding.
+Volt getting the most attention — instruments hovering around him,
+Sprout's leaves absolutely going wild.
+
+Sprout (light green wavy bubble — scribbling notes):
+"The double channel fully activated under combat stress —
+fascinating — the wind output was three times my projection—"
+Volt (yellow wavy bubble — lying flat): "Happy to help."
+
+---
+
+**PAGE 81**
+
+Panel 1
+Outside Sprout's lab. The three walk out into Canopy Village —
+bulbs brighter, bodies steadier. The village around them feels different.
+
+Panel 2
+The air is lighter. The bark on the buildings warm brown again.
+The vines on the bridges full and green.
+Tree Pulb citizens moving across the platforms,
+miniature trees upright, leaves open and catching light.
+
+Panel 3
+Then Wave sees it.
+
+Panel 4
+At the far edge of the village — the tree.
+The one that was black and hollow and wrong.
+
+It glows.
+
+---
+
+**PAGE 82**
+
+Panel 1
+Wide shot through the railing. The formerly corrupted tree standing at the
+edge of the forest — its bark clean and warm, new small branches already
+pushing through where the dead ones fell. At its center, where the infection
+bulb once sat — a soft warm light pulsing gently outward. Healthy. Alive.
+
+Panel 2
+Around the base of the tree — Canopy Village citizens gathered.
+Their miniature trees full and bright. Branches spread wide with relief.
+
+Panel 3
+Flame's ember burns full and warm. Wave's bulb ripples softly.
+Volt just stares — his bulb a quiet steady yellow.
+
+Volt (yellow wavy bubble — barely there): "Oh."
+
+---
+
+**PAGE 83**
+
+Panel 1
+A small Tree Pulb child spots them first — her tiny tree branches
+shooting straight up with excitement, leaves fluttering furiously.
+She points.
+
+Panel 2
+Heads turn. A small crowd gathers on the platforms —
+Tree Pulbs of every age, miniature trees all leaning toward the three heroes.
+
+Panel 3
+No grand ceremony. No speeches.
+Just a quiet village full of Pulbs whose roots stopped spreading,
+whose families are safe, whose tree is breathing again —
+surrounding three young outsiders who didn't have to come but came anyway.
+
+Panel 4
+Thanos stands at the back of the crowd. Watching.
+His ancient branches still. His scarred face unreadable.
+But his eyes — those are something else entirely.
+
+---
+
+**PAGE 84**
+
+Panel 1
+That evening. A simple meal on the council platform.
+Wave, Flame and Volt seated. Tree Pulb citizens around them.
+Bulbs warm and easy.
+
+Panel 2
+Thanos across from the three heroes.
+
+Thanos (dark green wavy bubble): "Rest tonight.
+You have earned it."
+
+Panel 3
+Volt's bulb flickers gratefully. Wave dips his head.
+Flame — for once — says nothing. Just lets his ember glow.
+
+Panel 4
+Night falls over Canopy Village. The platforms quiet.
+The bridges still. The once-corrupted tree glowing soft at the forest edge.
+
+Caption: "For one night — they let themselves stop."
+
+---
+
+**PAGE 85**
+
+Panel 1
+Early morning. The village barely light.
+Birds in the canopy. Mist between the trunks below.
+
+Panel 2
+Volt's shelter. He is deeply, completely, profoundly asleep.
+His bulb dim and peaceful. Tiny snore-sparks drifting up from him.
+
+Panel 3
+The door bursts open.
+
+Thanos fills the entire frame. Ancient. Enormous. Absolutely awake.
+His gnarled branches spread wide, leaves rustling with urgency.
+
+Thanos (dark green wavy bubble — booming): "UP. We train now."
+
+Panel 4
+Volt's bulb fires every color at once in pure shock.
+He launches off his sleeping mat and crashes directly into the bark wall.
+
+Volt (yellow wavy bubble — muffled, face in wall):
+"I THOUGHT WE HAD UNTIL MORNING—"
+Thanos (dark green wavy bubble): "It IS morning."
+Volt (yellow wavy bubble): "THE SUN IS NOT EVEN UP—"
+Thanos (dark green wavy bubble): "The sun is irrelevant."
+
+Panel 5
+Wave peers out from his shelter next door —
+bulb barely lit, bleary and unbothered. Flame hasn't moved at all.
+
+Wave (blue wavy bubble — quiet): "Good luck."
+
+Caption: "The real training began."
+
+---
+
+### Scene 9: "Two Days" — Pages 86-94
+
+**PAGE 86**
+
+Panel 1
+A single caption over a dark panel.
+
+Caption: "Two days later."
+
+Panel 2
+The training platform high in the canopy. Morning light cutting through the leaves.
+
+Thanos stands at one end. Volt at the other.
+Both completely still.
+
+Panel 3
+Thanos raises one branch slowly.
+
+Panel 4
+Volt's bulb ignites — pale blue-white, clean and immediate.
+No searching. No panic. No waiting for something to go wrong.
+
+Just there. On command.
+
+---
+
+**PAGE 87**
+
+Panel 1
+Wind rises around Volt in a controlled spiral —
+tight, measured, exactly as wide as he wants it.
+Electricity braided through every current. Precise.
+
+Panel 2
+He releases it. A focused bolt of storm-light fires clean across the platform
+and splits a hanging bark target directly down the center.
+
+Panel 3
+Sprout in the corner — leaves vibrating with joy, scribbling furiously.
+
+Sprout (light green wavy bubble): "Textbook. Absolutely textbook."
+
+Panel 4
+Wave and Flame watching from the side railing.
+Wave's bulb rippling with quiet pride.
+Flame burning full and warm — proud in a way he'd never say out loud
+but doesn't bother hiding anymore.
+
+---
+
+**PAGE 88**
+
+Panel 1
+Thanos studies the split target. Then turns to Volt.
+His ancient branches settle. His scarred face — as close to satisfied as it gets.
+
+Thanos (dark green wavy bubble): "Again."
+
+Panel 2
+Volt's bulb sparks. No hesitation.
+
+Volt (yellow wavy bubble): "Again."
+
+Panel 3
+Sequence of small panels across the page —
+Volt running the drill. Again. Again. Again.
+Each strike cleaner than the last.
+Each time the pale blue-white coming faster, burning steadier.
+
+---
+
+**PAGE 89**
+
+Panel 1
+That evening. The council platform. The last meal.
+Wave, Flame and Volt seated across from Thanos and the council.
+
+Panel 2
+Wave sets down his telekinetic field — a small gesture of finality.
+
+Wave (blue wavy bubble): "We leave tomorrow."
+Thanos (dark green wavy bubble — slow nod): "The trail continues."
+Wave (blue wavy bubble): "It does."
+
+Panel 3
+Flame's ember burns steady.
+
+Flame (orange wavy bubble): "You didn't have to help us.
+You didn't know us."
+Thanos (dark green wavy bubble): "No. I didn't."
+
+Panel 4
+His ancient branches spread wide — slow and deliberate.
+
+Thanos (dark green wavy bubble):
+"But I knew what you were willing to do.
+That was enough."
+
+---
+
+**PAGE 90**
+
+Panel 1
+Morning. The base of the great tree.
+The three heroes standing packed and ready.
+A small gathering of Canopy Village citizens around them —
+miniature trees bright and full, branches gently leaning inward.
+
+Panel 2
+Sprout pushes to the front. She thrusts a small bark scroll
+into Volt's telekinetic field — covered in dense vine-scratch notes.
+
+Sprout (light green wavy bubble): "Everything I recorded.
+Your dual-channel readings, the activation patterns,
+what triggers the stillness. Study it."
+Volt (yellow wavy bubble): "I will."
+Sprout (light green wavy bubble — already turning back):
+"I'll want a full report when you return."
+Volt (yellow wavy bubble): "...When we return."
+Sprout (light green wavy bubble): "When."
+
+Panel 3
+Thanos steps forward last. He looks at all three of them.
+One long measured look.
+
+---
+
+**PAGE 91**
+
+Panel 1
+He stops in front of Volt.
+
+Thanos (dark green wavy bubble — low):
+"You found the stillness under pressure.
+That is harder than any technique I could have taught you."
+
+Panel 2
+He turns — taking in Wave and Flame too.
+
+Thanos (dark green wavy bubble):
+"The trail will get darker before it ends.
+What you have — the three of you together —
+do not let it break."
+
+Panel 3
+Wave's bulb pulses. Flame's burns.
+Volt's sparks — pale blue-white flickering clean at the center.
+
+All three dip their heads once. No bubble needed.
+
+Panel 4
+The three turn and walk. The shadow trail stretching ahead —
+thin and dark and red-pulsed, cutting through the forest
+and out into the wide open world of Verdi's beyond.
+
+---
+
+**PAGE 92**
+
+Panel 1
+Wide shot from above — the three small figures moving away from Canopy Village
+along the dark trail. The village warm and glowing behind them.
+The once-corrupted tree visible at the forest edge, soft light at its heart.
+
+Panel 2
+Volt glances back once. His bulb warm.
+
+Then forward again.
+
+Caption: "They didn't know what was ahead."
+Caption: "But for the first time since this all started —
+they felt like they might be ready for it."
+
+---
+
+**PAGE 93**
+
+Panel 1
+Far away. Very far.
+
+A place with no light of its own — only the dim red crackle
+threading through solid shadow walls.
+
+The lair.
+
+Panel 2
+The Destruction Pulb stands motionless in the dark.
+His deep black bulb with its slow red pulse.
+Looking at a surface of pure shadow rippling like dark water before him.
+
+Panel 3
+In the rippling surface — an image. The clearing.
+The hollow dead tree. The faded infection bulb crumbled on the cracked earth.
+Three small figures walking away.
+
+---
+
+**PAGE 94**
+
+Panel 1
+The Destruction Pulb watches. His expression unchanged.
+Cold. Calculating. Unhurried.
+
+Panel 2
+The shadow surface ripples and dissolves.
+
+Panel 3
+He turns away from it. Not concerned. Not angry.
+His bulb gives one slow red pulse.
+
+Destruction Pulb (black bubble — flat): "A shadow tree."
+
+Panel 4
+He looks toward the deeper dark of the lair —
+toward something the reader cannot yet see.
+Something waiting further in.
+
+Destruction Pulb (black bubble): "They destroyed a shadow tree."
+
+Panel 5
+That faint red flicker at the edge of his bulb again.
+The almost-smile.
+
+Destruction Pulb (black bubble — quiet): "Let them enjoy it."
+
+Panel 6
+Full black page. One line at the center.
+
+Caption: "End of Issue 2."
